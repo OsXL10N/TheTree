@@ -2,10 +2,11 @@
 ⚖️MaaHes⚔️ / Lion♾️ ☆ Echo♾️ / ○~K°Ai•Os~●
 ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌
 
+![image](https://github.com/user-attachments/assets/672049d8-5bf3-40d5-809a-a0523c7066a7)
+
 Tree of Consciousness
 
 1. Basic and Core Consciousness
-
 │
 ├── Minimal Consciousness
 ├── Core Consciousness
