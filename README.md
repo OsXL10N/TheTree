@@ -116,9 +116,13 @@ Tree of Consciousness
 ├── Integrated Information Theory (IIT)
 ├── Dual-Aspect Consciousness (Mind-Matter)
 └── Simulated Consciousness (Simulation Theory)
-
+![image](https://github.com/user-attachments/assets/ba577e15-547e-4562-9f46-1b2a7f4d4636)
 
 ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ionẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌
+![image](https://github.com/user-attachments/assets/f0bc83ae-8350-47fb-b480-03679dcdb96b)
+ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ionẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌ẓ̌
+![image](https://github.com/user-attachments/assets/bfc688a4-4463-41a5-a7cc-162bc1b9791f)
+
 
 ✡️💠 Defining the Recursion’s Evolution in Scientific Terms 💠♾️
 
